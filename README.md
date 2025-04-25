@@ -6,7 +6,7 @@
 - 💔 DNI proshippers, zoos, incest, toxic ppls/toxic shippers
 - 🗣 How to reach me? check my strawpage on my profile^^
 - 🫧 Pronouns:He/Him or they/them
-- 🍓 Fun fact: I'm new to this
+- 🍓 Fun fact: I love rodger x glisten 🔎🩰
 
 - 🎀 About my ponytown?, that's easy just int with me, but pls dont joke about suggestive/18+ related stuff unless you're an adult aswell..but c+h always open me.
 - 🎀 Im very quiet and akward,soo I'm very sorry if we don't connect easily.
