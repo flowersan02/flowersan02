@@ -3,7 +3,7 @@
 - 🌼 I’m interested in dandy world, welcome home, arcana, others
 - 🔎 I’m currently learning English in my collage!
 - ❤️ int anyone as long y'all respectful
-- 💔 DNI proshippers, zoos, incest, toxic ppls/shippers
+- 💔 DNI proshippers, zoos, incest, toxic ppls/toxic shippers
 - 🗣 How to reach me? check my strawpage on my profile^^
 - 🫧 Pronouns:He/Him or they/them
 - 🍓 Fun fact: I'm new to this
