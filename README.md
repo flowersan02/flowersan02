@@ -1,15 +1,22 @@
-- 🎀 Hi, I’m flower/Jeffrey
-- 💤 I'm 20, be respectful pls
-- 🌼 I’m interested in dandy world, welcome home, forsaken, arcana, others
-- 🔎 I’m currently learning English in my collage!
-- ❤️ int anyone as long y'all respectful
-- 💔 DNI proshippers, zoos, incest, toxic ppls/toxic shippers
-- 🗣 How to reach me? check my strawpage on my profile^^
-- 🫧 Pronouns:He/Him or they/them
-- 🍓 Fun fact: I love rodger x glisten 🔎🩰 and pizzapunch 🍕👊 
+- Hi, I’m flower/Jeffrey
+- I'm 20, be respectful pls
+- I’m interested in dandy world, welcome home, forsaken, arcana, others
+- I’m currently learning English in my collage!
 
-- 🎀 About my ponytown?, that's easy just int with me, but pls dont joke about suggestive/18+ related stuff unless you're an adult aswell..but c+h always open me.
-- 🎀 Im very quiet and akward,soo I'm very sorry if we don't connect easily.
+- ❤️ int anyone just don't be weird ok?
+- 💔 DNI proshippers, zoos, incest, toxic ppls/toxic shippers, or just basic dni.
+
+- How to reach me? check my strawpage on my profile ^_^
+- Pronouns:He/Him or they/them
+- Fun fact: I love rodger x glisten 🔎🩰 and pizzapunch 🍕👊
+- Multishippers, I'll hear yall ships out ! not the weird one tho eugh..
+
+- About my ponytown?, that's easy just int with me, but pls dont joke about suggestive/18+ related stuff unless you're an adult aswell..but c+h always open.
+- Im very quiet and akward,sorry if we don't connect easily.
+- very hypersensitive, pls choose your words wisely or use tonetags if you want.
+- Dont take advantage of my kindness, or try guilt trip me to excuse your toxic/weird behaviors.
+
+  JUST DONT BE WEIRD PLS☹️/SRS
 <!---
 flowersan02/flowersan02 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
