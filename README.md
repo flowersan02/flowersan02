@@ -1,4 +1,4 @@
-- Hi, I’m flower/Jeffrey
+- Hi, I’m flower/Jeffrey [Elliot is fine too ^_^♡]
 - I'm 20, be respectful pls
 - I’m interested in dandy world, welcome home, forsaken, arcana, others
 - I’m currently learning English in my collage!
