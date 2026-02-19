@@ -1,6 +1,6 @@
 - Hi, I’m flower/Jeffrey [Elliot is fine too ^_^♡]
 - I'm 20, be respectful pls
-- I’m interested in dandy world, welcome home, forsaken, arcana, others
+- I’m interested in dandy world, tfc, welcome home, forsaken, arcana, others
 - I’m currently learning English in my collage!
 
 - ❤️ int anyone just don't be weird ok?
@@ -8,7 +8,7 @@
 
 - How to reach me? check my strawpage on my profile ^_^
 - Pronouns:He/Him or they/them
-- Fun fact: I love rodger x glisten 🔎🩰 and pizzapunch 🍕👊
+- Fun fact: I love rodger x glisten 🔎🩰 and pizzapunch 🍕👊 toxicpizza is Cool.. ♡
 - Multishippers, I'll hear yall ships out ! not the weird one tho eugh..
 
 - About my ponytown?, that's easy just int with me, but pls dont joke about suggestive/18+ related stuff unless you're an adult aswell..but c+h always open.
