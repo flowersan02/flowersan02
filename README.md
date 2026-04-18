@@ -1,6 +1,6 @@
 - Hi, I’m flower/Jeffrey [Elliot is fine too ^_^♡]
 - I'm 20
-- I’m interested in dandy world, tfc, welcome home, forsaken, arcana, others
+- I’m interested in dandy world, pighting, welcome home, forsaken, arcana, others
 - I’m currently learning English in my collage!
 
 - ❤️ int anyone just don't be weird ok?
