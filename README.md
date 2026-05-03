@@ -4,7 +4,7 @@
 - I’m currently learning English in my collage!
 
 - ❤️ int anyone just don't be weird ok?
-- 💔 DNI proshippers, zoos, incest, toxic ppls/toxic shippers, forsaken fans on thin ice or just basic dni.
+- 💔 DNI proshippers, zoos, incest, toxic ppls/toxic shippers, forsaken fans on thin ice, 17 under dni unless I already know you or just basic dni.
 
 - How to reach me? check my strawpage on my profile ^_^
 - Pronouns:He/Him or they/them
@@ -13,7 +13,7 @@
 
 - About my ponytown?, that's easy just int with me, but pls dont joke about suggestive/18+ related stuff unless you're an adult aswell..but c+h always open.
 - Im very quiet and akward,sorry if we don't connect easily.
-- very hypersensitive, pls choose your words wisely or use tonetags if you want.
+- sometimes I don't use tonetags
 - Dont take advantage of my kindness, or try guilt trip me to excuse your toxic/weird behaviors.
 
   JUST DONT BE WEIRD PLS☹️/SRS
