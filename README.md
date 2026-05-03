@@ -1,10 +1,10 @@
 - Hi, I’m flower/Jeffrey [Elliot is fine too ^_^♡]
 - I'm 20
-- I’m interested in dandy world, pighting, welcome home, forsaken, arcana, others
+- I’m interested in WAAPP, dandy world, pighting, welcome home, forsaken ig.., arcana, myth, args, and alot more in roblox
 - I’m currently learning English in my collage!
 
 - ❤️ int anyone just don't be weird ok?
-- 💔 DNI proshippers, zoos, incest, toxic ppls/toxic shippers, or just basic dni.
+- 💔 DNI proshippers, zoos, incest, toxic ppls/toxic shippers, forsaken fans on thin ice or just basic dni.
 
 - How to reach me? check my strawpage on my profile ^_^
 - Pronouns:He/Him or they/them
