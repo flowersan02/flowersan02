@@ -4,7 +4,7 @@
 - I’m currently learning English in my collage!
 
 - ❤️ int anyone just don't be weird ok?
-- 💔 DNI proshippers, zoos, incest, toxic ppls/toxic shippers, forsaken fans on thin ice, 15/17 under dni unless I already know you or just basic dni.
+- 💔 DNI proshippers, zoos, incest, toxic ppls/toxic shippers, forsaken fans on thin ice, 15/17 under iwc/on thin ice unless I already know you or just basic dni.
 
 - How to reach me? check my strawpage on my profile ^_^
 - Pronouns:He/Him or they/them
