@@ -8,7 +8,7 @@
 
 - How to reach me? check my strawpage on my profile ^_^
 - Pronouns:He/Him or they/them
-- Fun fact: I love rodger x glisten 🔎🩰 and pizzapunch 🍕👊 toxicpizza is Cool.. ♡
+- Fun fact: I love rodger x glisten 🔎🩰 and pizzapunch 🍕👊 toxicpizza/pizzadebt is Cool.. ♡
 - Multishippers, I'll hear yall ships out ! not the weird one tho eugh..
 
 - About my ponytown?, that's easy just int with me, but pls dont joke about suggestive/18+ related stuff unless you're an adult aswell..but c+h always open.
