@@ -4,17 +4,27 @@
 - I’m currently learning English in my collage!
 
 - ❤️ int anyone just don't be weird ok?
+
 - 💔 DNI proshippers, zoos, incest, toxic ppls/toxic shippers, forsaken fans on thin ice, 15/17 under iwc/on thin ice unless I already know you or just basic dni.
 
 - How to reach me? check my strawpage on my profile ^_^
-- Pronouns:He/Him or they/them
+
+- Pronouns:He/they
+
 - Fun fact: I love rodger x glisten 🔎🩰 and pizzapunch 🍕👊 toxicpizza/pizzadebt is Cool.. ♡
+
 - Multishippers, I'll hear yall ships out ! not the weird one tho eugh..
 
-- About my ponytown?, that's easy just int with me, but pls dont joke about suggestive/18+ related stuff unless you're an adult aswell..but c+h always open.
-- Im very quiet and akward,sorry if we don't connect easily.
+- About my ponytown?, that's easy just int with me, but pls dont joke about suggestive/18+ related stuff unless you're an adult aswell.
+
+- Im very quiet and akward,sorry if we don't connect easily. I would to be friends with you guys.
+
 - sometimes I don't use tonetags
+
+- pls tell me if I follow or friends with anyone who is problematic or weird, I easily get fooled alot soo pls /gen
+
 - Dont take advantage of my kindness, or try guilt trip me to excuse your toxic/weird behaviors.
+  
 - JUST DONT BE WEIRD PLS☹️/SRS
 <!---
 flowersan02/flowersan02 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
