@@ -30,13 +30,13 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled16_20260804221644.png">
 
 <img align="center" width="1000"
 src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260805182806.png">
-ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ <img align="center" width="500" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260804221614.png">
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ<img align="center" width="500" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260804221614.png">
 
 
 <img align="center" width="3519" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled23_20260806191614.png">
  ㅤ 
  
-ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ <img align="center" width="500" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260804221614.png">
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ<img align="center" width="500" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260804221614.png">
 <img align="center" width="1000"
 src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260805182806.png">
 
