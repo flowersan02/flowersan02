@@ -1,6 +1,6 @@
 <img align="center" width="1280"
 src="https://file.garden/aiO9m-bAgXvOABPl/Untitled16_20260804221644.png">
-ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ<img align="center" width="800" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260804221614.png">
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ<img align="center" width="900" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260804221614.png">
 ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ   $\color{#FEEC79}\textsf{Hi, I’m flower/Jeffrey}$
 
    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ    $\color{#FEEC79}\textsf{Elliot is fine too ♡}$
@@ -18,19 +18,17 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled16_20260804221644.png">
 
 <img align="center" width="1000"
 src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260805182806.png">
-ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤㅤ<img align="center" width="500" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260804221614.png">
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ<img align="center" width="500" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260804221614.png">
 
 
 <img align="center" width="3519" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled23_20260806191614.png">
  ㅤ 
  
-ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤㅤㅤㅤ<img align="center" width="500" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260804221614.png">
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤㅤㅤ<img align="center" width="500" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260804221614.png">
 <img align="center" width="1000"
 src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260805182806.png">
 
- ㅤ
-
- ㅤ
+ ㅤ ㅤ
  ㅤ
 <div align="center">  ㅤ
  ㅤ<details closed>
@@ -83,7 +81,7 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled19_20260806221034.png">
 
 
 
-ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ <img align="center" width="800" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260804221614.png">
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ <img align="center" width="900" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260804221614.png">
 
 
 <img align="center" width="1280"
