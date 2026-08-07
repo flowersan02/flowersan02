@@ -39,19 +39,19 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260805182806.png">
 
 | ${{\color{#FFA5A1} multishippers, \space I'll \space hear \space yall \space ships \space out! \space not \space the \space weird \space one \space tho \space eugh... }}$ |
 |------------------------------|
-|${{\color{#FFA5A1}    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤpls \space dont \space joke \space about \space suggestive/18+ \space related \space stuff \space unless \space you're \space an \space adult \space aswell }}$ |
-| ${{\color{#FFA5A1}    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ im \space very \space quiet \space and \space awkward \space sorry \space if \space we \space don't \space connect \space easily \space i \space would \space love \space to \space be \space friends \space with \space you \space guys }}$ |
-| ${{\color{#FFA5A1}    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ pls \space tell \space me \space if \space i \space follow \space or \space friends \space with \space anyone \space who \space is \space problematic \space or \space weird, \space I \space easily \space get \space fooled \space alot \space soo \space pls \space /gen }}$ |
-| ${{\color{#FFA5A1}    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ don't \space take \space advantage \space of \space my \space kindness \space or \space try \space to \space guilttrip \space me \space to \space excuse \space your \space toxic/weird, \space behaviors }}$ |
-| ${{\color{#FFA5A1}    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ JUST \space DONT \space BE \space WEIRD \space PLEASE \space /SRS \space or \space try \space to \space guilttrip \space me \space to \space excuse \space your \space toxic/weird, \space behaviors }}$ |
+|${{\color{#FEEC79}    ㅤ pls \space dont \space joke \space about \space suggestive/18+ \space related \space stuff \space unless \space you're \space an \space adult \space aswell }}$ |
+| ${{\color{#FFA5A1}    ㅤ im \space very \space quiet \space and \space awkward \space sorry \space if \space we \space don't \space connect \space easily \space i \space would \space love \space to \space be \space friends \space with \space you \space guys }}$ |
+| ${{\color{#FEEC79}    ㅤ ㅤ pls \space tell \space me \space if \space i \space follow \space or \space friends \space with \space anyone \space who \space is \space problematic \space or \space weird, \space I \space easily \space get \space fooled \space alot \space soo \space pls \space /gen }}$ |
+| ${{\color{#FEEC79}    ㅤ ㅤ  don't \space take \space advantage \space of \space my \space kindness \space or \space try \space to \space guilttrip \space me \space to \space excuse \space your \space toxic/weird, \space behaviors }}$ |
+| ${{\color{#FFA5A1}    ㅤ ㅤ ㅤ ㅤ JUST \space DONT \space BE \space WEIRD \space PLEASE \space /SRS \space or \space try \space to \space guilttrip \space me \space to \space excuse \space your \space toxic/weird, \space behaviors }}$ |
 </details>
 
 <details closed>
    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ  <summary> ${{\color{#FFA5A1} ᛝ⏖}}$ ${{\color{#f9f0b1} Int + Byi!}}$</summary>
 
-| ${{\color{#FFA5A1} INT \space anyone \space just \space dont \space be \space weird \space ok? }}$ |
+| ${{\color{#FEEC79} INT \space anyone \space just \space dont \space be \space weird \space ok? }}$ |
 |------------------------------|
-|${{\color{#FFA5A1}    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤDNI \space proshippers, \space zoos, \space incest, \space toxic, \space ppls/toxic \space shippers, \space forsaken \space fans \space on \space thin \space ice, \space 15/17 \space iwc/ \space on \space i \space i \space already \space know \space you \space you \space or \space just \space basic \space dni. }}$ |
+|${{\color{#FFA5A1} DNI \space proshippers, \space zoos, \space incest, \space toxic, \space ppls/toxic \space shippers, \space forsaken \space fans \space on \space thin \space ice, \space 15/17 \space iwc/ \space on \space i \space i \space already \space know \space you \space you \space or \space just \space basic \space dni. }}$ |
 </details>
 </div>
 
@@ -79,7 +79,7 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled19_20260806221034.png">
 
 </div>
 
-<img src="https://cdn.imgchest.com/files/a167d8712a84.gif" width="20px"> ㅤ  [*ata*](https://flowersan.atabook.org/) ${{\color{#FFA5A1} ✿}}$ [*strawpage*](https://flowersanstrawpage.straw.page/) ${{\color{#FFA5A1} ✿}}$ [*prns*](https://en.pronouns.page/@Flowersan01) ㅤ  ${{\color{#f9f0b1} (..◜ᴗ◝..)}}$    
+<img src="https://cdn.imgchest.com/files/a167d8712a84.gif" width="20px"> ㅤ  [*ata*](https://flowersan.atabook.org/) ${{\color{#FEEC79} ✿}}$ [*strawpage*](https://flowersanstrawpage.straw.page/) ${{\color{#FEEC79} ✿}}$ [*prns*](https://en.pronouns.page/@Flowersan01) ㅤ  ${{\color{#f9f0b1} (..◜ᴗ◝..)}}$    
                                                                                                         
 
 
