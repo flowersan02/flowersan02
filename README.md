@@ -36,11 +36,11 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260805182806.png">
 
 | ${{\color{#FFA5A1} multishippers, \space I'll \space hear \space yall \space ships \space out! \space not \space the \space weird \space one \space tho \space eugh... }}$ |
 |------------------------------|
-|${{\color{#FEEC79}    ㅤ pls \space dont \space joke \space about \space suggestive/18+ \space related \space stuff \space unless \space you're \space an \space adult \space aswell }}$ |
-| ${{\color{#FFA5A1}    ㅤ im \space very \space quiet \space and \space awkward \space sorry \space if \space we \space don't \space connect \space easily \space i \space would \space love \space to \space be \space friends \space with \space you \space guys }}$ |
+|${{\color{#FEEC79}    ㅤ     ㅤ pls \space dont \space joke \space about \space suggestive/18+ \space related \space stuff \space unless \space you're \space an \space adult \space aswell }}$ |
+| ${{\color{#FFA5A1}    ㅤ     ㅤ     ㅤ im \space very \space quiet \space and \space awkward \space sorry \space if \space we \space don't \space connect \space easily \space i \space would \space love \space to \space be \space friends \space with \space you \space guys }}$ |
 | ${{\color{#FEEC79}    ㅤ ㅤ pls \space tell \space me \space if \space i \space follow \space or \space friends \space with \space anyone \space who \space is \space problematic \space or \space weird, \space I \space easily \space get \space fooled \space alot \space soo \space pls \space /gen }}$ |
 | ${{\color{#FEEC79}    ㅤ ㅤ  don't \space take \space advantage \space of \space my \space kindness \space or \space try \space to \space guilttrip \space me \space to \space excuse \space your \space toxic/weird, \space behaviors }}$ |
-| ${{\color{#FFA5A1}    ㅤ ㅤ ㅤ ㅤ JUST \space DONT \space BE \space WEIRD \space PLEASE \space /SRS }}$ |
+| ${{\color{#FFA5A1}    ㅤ ㅤ ㅤ ㅤ     ㅤ     ㅤ     ㅤ JUST \space DONT \space BE \space WEIRD \space PLEASE \space /SRS }}$ |
 </details>
 
 <details closed>
