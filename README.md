@@ -9,12 +9,12 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled16_20260804221644.png">
 
 
 
-   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ   ㅤㅤ<a href="https://github.com/flowersan02">
+   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤㅤ<a href="https://github.com/flowersan02">
   <img src="https://komarev.com/ghpvc/?username=flowersan02&label=Customers!&color=FDD179&style=flat" />
 </a>
  
 
-   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Gafata&size=16&duration=3300&pause=500&color=FEEC79&center=true&width=431&height=100&lines=And+all+im+askin+in+return%2C+Is+for+you+to+show+me+Which+way+to+turn.;+Trust+me!+I'll+be+the+one+to+fight+for+you+When+things+go+wrong.;+Trust+me,+i'll+never+let+you+down!.;(let+you+down!)." alt="Typing SVG" width="370px"/></a>
+   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ    <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Gafata&size=16&duration=3300&pause=500&color=FEEC79&center=true&width=431&height=100&lines=And+all+im+askin+in+return%2C+Is+for+you+to+show+me+Which+way+to+turn.;+Trust+me!+I'll+be+the+one+to+fight+for+you+When+things+go+wrong.;+Trust+me,+i'll+never+let+you+down!.;(let+you+down!)." alt="Typing SVG" width="370px"/></a>
 
 <img align="center" width="1000"
 src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260805182806.png">
