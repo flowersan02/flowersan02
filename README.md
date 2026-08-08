@@ -48,7 +48,7 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260805182806.png">
 
 | ${{\color{#FEEC79} INT \space anyone \space just \space dont \space be \space weird \space ok? }}$ |
 |------------------------------|
-|${{\color{#FFA5A1} DNI \space proshippers, \space zoos, \space incest, \space toxic, \space ppls/toxic \space shippers, \space forsaken \space fans \space on \space thin \space ice, \space 15/17 \space iwc/ \space on \space i \space i \space already \space know \space you \space you \space or \space just \space basic \space dni. }}$ |
+|${{\color{#FFA5A1} DNI \space proshippers, \space zoos, \space incest, \space toxic, \space ppls/toxic \space shippers, \space forsaken \space fans \space on \space thin \space ice, \space 15/17 \space iwc/ \space on \space thin \space ice \space unless \space i \space already \space know \space you \space or \space just \space basic \space dni. }}$ |
 </details>
 </div>
 
